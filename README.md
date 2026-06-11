@@ -25,7 +25,7 @@
 15. Nome - Seu Salve
 16. Nome - Seu Salve
 17. Nome - Seu Salve
-18. Nome - Seu Salve
+18. Duda - "2B a melhor sala da escola!"
 19. Nome - Seu Salve
 20. Nome - Seu Salve
 21. Nome - Seu Salve
