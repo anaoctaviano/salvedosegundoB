@@ -36,7 +36,7 @@
 26. Nome - Seu Salve
 27. Nome - Seu Salve
 28. Nome - Seu Salve
-29. Nome - Seu Salve
+29. Vithor - Seu Salve - Salve 2°B
 30. Nome - Seu Salve
 31. Nome - Seu Salve
 32. Nome - Seu Salve
